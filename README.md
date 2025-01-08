@@ -1,5 +1,5 @@
 
-# [👀 Gamdom Türkiye Güncel Giriş için Tıklayın ⚡](https://laclin.com.br/admin/fckeditor/editor/filemanager/browser/default/browser.html?Connector=https://urlremove.com/aabajd/aabajd)
+# [👀 Gamdom Türkiye Güncel Giriş için Tıklayın ⚡](http://bit.ly/gamdomgirisvpn)
 ## - 👋 Güncel Giriş İçin Yukaridaki Giriş Linkine Tıklayın
 ## - 👋 Gamdom TR Giriş
 ## - 👀 # Gamdom Güncel Giriş
